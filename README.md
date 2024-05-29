@@ -10,4 +10,4 @@ Sou um aluno que estuda no ensino médio e criei esse repositório para comparti
 
 📷 ig: @fabiolorran792
 
-https://tenor.com/pt-BR/view/cat-white-roomba-cute-weird-gif-19060101
+![](https://tenor.com/pt-BR/view/cat-white-roomba-cute-weird-gif-19060101)
